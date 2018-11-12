@@ -1,2 +1,2 @@
-# me-hul
+# mechul
 https://discord.gg/vnsAFVP
